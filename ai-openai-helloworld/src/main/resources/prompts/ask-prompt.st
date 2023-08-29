@@ -1,0 +1,1 @@
+Tell me abount {adjective}
